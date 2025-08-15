@@ -12,5 +12,3 @@ asopdgjnasoüdnvoasdg+pasdjgoasndfja asdasdojfnapefuiojhioas Penis
 
  1. das erste
  2. ZDF
- 3. 3Sat
- 
